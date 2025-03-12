@@ -1,2 +1,0 @@
-# new-porto
-My Portofolio
